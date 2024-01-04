@@ -12,8 +12,16 @@ N﻿etlify CMS
   -﻿ Takaharu
   -﻿ Ruby on rails
 
+t﻿his is `code` 
+
+```ruby
+def users
+  User.all
+end
+```
+
+![](/media/4.jpg)
+
 ![](/media/10.jpg)
-
-
 
 <https://yahoo.co.jp>
