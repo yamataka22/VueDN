@@ -7,53 +7,54 @@ date: 2023-04-10
 
 ## Links
 
-- [Youtube](https://youtu.be/eoIHxiyOZAk)
-
-- [Spotify](https://open.spotify.com/track/4JpNZukH0FMF5hmga7DQba?si=ab648708a17a4eea)
+* [Youtube](https://youtu.be/eoIHxiyOZAk)
+* [Spotify](https://open.spotify.com/track/4JpNZukH0FMF5hmga7DQba?si=ab648708a17a4eea)
 
 ## Lyrics
 
-Tuko tayari, Kuona miujiza ***3**<br>
+![](https://imgsv.nikon-image.com/products/slr/lineup/d850/img/sample/pic_01_l.jpg)
+
+Tuko tayari, Kuona miujiza **\*3**<br>
 (We are ready to witness miracles)
 
 Mimi niko tayari, Kuona miujiza<br>
 (I am ready to witness miracles)
 
-Yako Mungu ***2**<br>
+Yako Mungu **\*2**<br>
 (Your miracles, God)
 
-Miujiza Yako Mungu ***2**<br>
+Miujiza Yako Mungu **\*2**<br>
 (Your miracles, God)
 
---- Instrumental Interlude
+\--- Instrumental Interlude
 
-Mahali hapa, Pamelowa upako ***4**<br>
+Mahali hapa, Pamelowa upako **\*4**<br>
 (This place is flooded with anointing)
 
-Wako Mungu ***4**<br>
+Wako Mungu **\*4**<br>
 (Your anointing, God)
 
-[Repeat]
+\[Repeat]
 
---- Instrumental Interlude
-
-Now we worship You<br>
-You alone are King of Kings ***3**
-
---- Instrumental Interlude
+\--- Instrumental Interlude
 
 Now we worship You<br>
-You alone are King of Kings ***4**
+You alone are King of Kings **\*3**
+
+\--- Instrumental Interlude
+
+Now we worship You<br>
+You alone are King of Kings **\*4**
 
 You rule with power<br>
 With an iron sceptre<br>
 You're eyes are fire<br>
 And full of love<br>
-For Me ***3**
+For Me **\*3**
 
 Now we worship You<br>
 You alone are King
 
 ## Related performances
 
-- Tuko Tayari [REMIX] Mwanga Band feat. Alice Kimanzi - [Youtube](https://youtu.be/-aHXCfpwuRg)
+* Tuko Tayari \[REMIX] Mwanga Band feat. Alice Kimanzi - [Youtube](https://youtu.be/-aHXCfpwuRg)
